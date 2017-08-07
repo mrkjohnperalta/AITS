@@ -1,4 +1,4 @@
-![image](http://i.imgur.com/QFBSgNX.png)
+![image](http://i.imgur.com/fmYdpSi.png)
 
 # AITS
 
